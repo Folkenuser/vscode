@@ -11,4 +11,4 @@ sufrimiento. Estos casos son perfectamente simples y fáciles de distinguir.
   ocurrirá que los placeres deban ser repudiados y las molestias aceptadas.
    Por lo tanto, el hombre sabio siempre se atiene en estos asuntos a este 
    principio de selección: rechaza placeres para conseguir otros mayores,
-    o bien soporta dolores para evitar dolores peores.fdfsfsd  ffafwsfaaf dsdsd dvd
+    o bien soporta dolores para evitar dolores peores.fdfsfsd  ffafwsfaaf dsdsd dvdvvc 
